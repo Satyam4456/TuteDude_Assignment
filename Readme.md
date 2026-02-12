@@ -22,5 +22,5 @@ As the course progresses, this repository will showcase proficiency in the follo
 
 ## 📧 Connect with Me  
   
-* **LinkedIn:** [www.linkedin.com/in/satyam-jha-profile](www.linkedin.com/in/satyam-jha-profile)  
+* **LinkedIn:** (www.linkedin.com/in/satyam-jha-profile)  
 * **Email:** [satyamjhaa81@gmail.com](mailto:satyamjhaa81@gmail.com)  
